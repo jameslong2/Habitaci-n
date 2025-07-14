@@ -33,6 +33,6 @@ de irme,</br>
 al caer rendido en la cama.</br>
 </br>
 Peligro en mi mente,</br>
-el no volver a desertar,</br>
+el no volver a despertar,</br>
 luchare contra el cansacio,</br>
 en algun momento marchará.</br>
