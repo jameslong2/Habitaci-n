@@ -6,7 +6,7 @@ solo una cama,</br>
 ni un adorno.</br>
 </br>
 Se esta bien afuera,</br>
-no hay puertas paea salir,</br>
+no hay puertas para salir,</br>
 solo paredes de algodon,</br>
 no hay sitio donde ir.</br>
 </br>
